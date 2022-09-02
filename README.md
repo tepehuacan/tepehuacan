@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tepehuacan
-- 👀 I’m interested in strategy and adventrure rpg games
+- 👀 I’m interested in strategy and adventure rpg games
 - 📫 daniel@quixoticsoftware.com
 
 <!---
